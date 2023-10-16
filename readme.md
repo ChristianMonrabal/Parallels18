@@ -1,6 +1,3 @@
-# Update
-- Crack for Parallels Desktop 18.1.1-53328 : https://github.com/alsyundawy/Parallels
-
 # Parallels Desktop Crack
 
 Crack for Parallels Desktop 18.0.1-53056
